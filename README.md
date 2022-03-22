@@ -1,1 +1,3 @@
-My first readme
+i love GOD
+holy liuving
+heaven is the goal
